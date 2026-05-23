@@ -47,4 +47,11 @@ I like dottore and pantalone from the not so hitgame genshin impact
 i also enjoy phighting, my favorite from there is medkit yay
 <br> 
 im not good at thi ill put a new strawpage here soon i think
+<br>
+<br>
+</p>
+<div align="center">
+  <center><h1>Pony town stuff</h1></center>
+</div>
 
+im not finishing this anytime soon will probably also be remade err
