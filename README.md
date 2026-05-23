@@ -6,7 +6,9 @@
   <b>Hi</b>
 </div>
 
-# im really cool i promise
+<div align="center">
+  <center><h1>Im really cool i promise</h1></center>
+</div>
 <p align="center">
   <img width="1000" height="400" alt="ScreenRecording_05-23-202607-00-45_1-ezgif com-video-to-gif-converter" src="https://github.com/user-attachments/assets/b8940b8b-8d16-4531-8d90-10b9ddcfece3" />
 </p>
