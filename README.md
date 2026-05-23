@@ -18,7 +18,7 @@
     <br>
     Im quite awkward maybe, but im friendly, feel free to interact with me!!
     <br>
-    Please bmf
+  oomfs call me a vampire wow heh he
     <br>
     <br>
     i like uh lobcorp, limbus, pantalone n dottore genshin, phighting, CoS, DA, blocktales and er.. more idk
