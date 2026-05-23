@@ -27,7 +27,7 @@
 <br>
 <br>
 <div align="center">
-  <center><h1>About Pony town</h1></center>
+  <center><h1>About interests👀</h1></center>
 </div>
 <br>
 ok this is still a wip 
