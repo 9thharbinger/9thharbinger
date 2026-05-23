@@ -16,7 +16,7 @@
   Scroll down for more info wow ok 
 </p>
 
-<img align="left" width="200" alt="lv_0_20260501210801-ezgif com-gif-maker" src="https://github.com/user-attachments/assets/3006735b-0d7a-43bd-9b06-ea2b3e89f85c" />
+<img align="left" width="200" height="300" alt="lv_0_20260501210801-ezgif com-gif-maker" src="https://github.com/user-attachments/assets/3006735b-0d7a-43bd-9b06-ea2b3e89f85c" />
 
 # Headline 
 
