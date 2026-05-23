@@ -32,12 +32,6 @@
 <br>
 ok this is still a wip 
 
-<p float="left">
-  <img src="/img1.png" width="100" />
-  <img src="/img2.png" width="100" /> 
-  <img src="/img3.png" width="100" />
-</p>
-
-
+<img width="240" height="248" alt="image" src="https://github.com/user-attachments/assets/e6e413cb-ffda-49fa-91fd-c3013398b3a6" />
 
 
