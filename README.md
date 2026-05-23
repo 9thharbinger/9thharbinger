@@ -29,11 +29,22 @@
 <div align="center">
   <center><h1>About interests👀</h1></center>
 </div>
-<br>
-ok this is still a wip 
 <p align="middle">
 <img width="100" height="108" alt="image" src="https://github.com/user-attachments/assets/e6e413cb-ffda-49fa-91fd-c3013398b3a6" />
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/f00c3025-1729-47ca-bef8-7fcf483e305c" />
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/2733e150-0124-4b66-9e2c-37de5887169f" />
 </p>
+<p align="middle">
+I like Limbus company and lobotomy corperation
+<br>
+my favorite abnormalities from LOBOTOMY CORP are silent orchestra, apocalypse bird and judgement bird..wink wink..
+<br>
+I also like meursault from the hitgame limbus company..
+<br>
+<br>
+I like dottore and pantalone from the not so hitgame genshin impact
+  <br>
+i also enjoy phighting, my favorite from there is medkit yay
+<br> 
+im not good at thi ill put a new strawpage here soon i think
 
