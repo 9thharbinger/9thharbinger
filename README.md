@@ -14,44 +14,16 @@
   <center><h1>Im really cool i promise</h1></center>
 </div>
   <p align="center">
-  Scroll down for more info wow ok 
+  Feel free to Cxh at any time!
     <br>
+    Im quite awkward maybe, but im friendly, feel free to interact with me!!
+    <br>
+    Lallaal
     </p>
-    <p align="center">
-<img width="50" height="50" alt="PngItem_5273148" src="https://github.com/user-attachments/assets/8d9b043f-31cc-462f-9741-b393011936b1" />
-    </p>
-      <p align="center">
-(yes this is an attempt to make it aesthetic, its not working)
-</p>
 <br>
 <br>
-<br>
-<div align="center">
-  <center><h1>About interests👀</h1></center>
-</div>
 <p align="middle">
 <img width="100" height="108" alt="image" src="https://github.com/user-attachments/assets/e6e413cb-ffda-49fa-91fd-c3013398b3a6" />
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/f00c3025-1729-47ca-bef8-7fcf483e305c" />
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/2733e150-0124-4b66-9e2c-37de5887169f" />
 </p>
-<p align="middle">
-I like Limbus company and lobotomy corperation
-<br>
-my favorite abnormalities from LOBOTOMY CORP are silent orchestra, apocalypse bird and judgement bird..wink wink..
-<br>
-I also like meursault from the hitgame limbus company..
-<br>
-<br>
-I like dottore and pantalone from the not so hitgame genshin impact
-  <br>
-i also enjoy phighting, my favorite from there is medkit yay
-<br> 
-im not good at thi ill put a new strawpage here soon i think
-<br>
-<br>
-</p>
-<div align="center">
-  <center><h1>Pony town stuff</h1></center>
-</div>
-
-im not finishing this anytime soon will probably also be remade err
