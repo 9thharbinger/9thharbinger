@@ -1,3 +1,13 @@
-# This is me hello
-<img width="664" height="576" alt="ScreenRecording_05-23-202607-00-45_1-ezgif com-video-to-gif-converter" src="https://github.com/user-attachments/assets/b8940b8b-8d16-4531-8d90-10b9ddcfece3" />
+<div align="center">
+  <center><h1>Welcome to my profile</h1></center>
+</div>
+<br/>
+<div align="center">
+  <b>Hi</b>
+</div>
+
+# im really cool i promise
+<p align="center">
+  <img width="1000" height="400" alt="ScreenRecording_05-23-202607-00-45_1-ezgif com-video-to-gif-converter" src="https://github.com/user-attachments/assets/b8940b8b-8d16-4531-8d90-10b9ddcfece3" />
+</p>
 
