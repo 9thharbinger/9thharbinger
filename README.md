@@ -23,4 +23,15 @@
       <p align="center">
 (yes this is an attempt to make it aesthetic, its not working)
 </p>
-
+<br>
+<br>
+<br>
+<div align="center">
+  <center><h1>About Pony town</h1></center>
+</div>
+<br>
+<p align="center">
+Cxh is ALWAYS appreciated, feel free to ALWAYS cxh!!!
+<br>
+Uhhh
+</p>
