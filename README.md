@@ -44,6 +44,6 @@
 and no im not making this fancy
 <br>
 <p align="center">
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=perisicnikola37)
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=9thharbinger)
 </p>
 
