@@ -30,7 +30,7 @@
     <br>
  also sign my ata if youd like to : https://pantalone.atabook.org/ !!
     <br>
-    And this is my roblox profile : Robloxhttps://www.roblox.com/users/1467688861/profile!!
+    And this is my roblox profile : [Roblox](https://www.roblox.com/users/1467688861/profile)!!
     <br>
     my discord is also 9thharbinger yay, incase you want to add me!!
     <br>
