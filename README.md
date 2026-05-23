@@ -16,6 +16,10 @@
   <p align="center">
   Scroll down for more info wow ok 
     <br>
+    </p>
 <img width="50" height="50" alt="PngItem_5273148" src="https://github.com/user-attachments/assets/8d9b043f-31cc-462f-9741-b393011936b1" />
+    </p>
+      <p align="center">
 (yes this is an attempt to make it aesthetic, its not working)
 </p>
+
