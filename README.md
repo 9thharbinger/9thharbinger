@@ -21,8 +21,6 @@
     Please bmf
     <br>
     <br>
-    i play stuff such as erm roblox, pony town, lobcorp, limbus..i dont know
-    <br>
     i like uh lobcorp, limbus, pantalone n dottore genshin, phighting, CoS, DA, blocktales and er.. more idk
     <br>
     but my main interests are just the first three (lc, lcb, pantalone and dottore)
