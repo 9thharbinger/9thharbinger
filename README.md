@@ -14,4 +14,9 @@
 </div>
   <p align="center">
   Scroll down for more info wow ok 
-</p>
+   first: Pony town stuff
+   second: fandom stuff
+   third: about me
+   Theyll all be highlighted with a divider and headline, so scroll to whichever you please!
+   </p>
+
