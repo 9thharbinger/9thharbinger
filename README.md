@@ -23,7 +23,7 @@
     <br>
     i like uh lobcorp, limbus, pantalone n dottore genshin, phighting, CoS, DA, blocktales and er.. more idk
     <br>
-    but my main interests are just the first three (lc, lcb, pantalone and dottore)
+    but my main interests are just the first three (lobc,limbus,pantalone and dottore)
     <br>
     <br>
  also sign my ata if youd like to : https://pantalone.atabook.org/ !!
