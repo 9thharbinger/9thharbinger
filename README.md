@@ -30,7 +30,7 @@
     <br>
  also sign my ata if youd like to : https://pantalone.atabook.org/ !!
     <br>
-    And this is my roblox profile : [Roblox](https://www.roblox.com/users/1467688861/profile)!!
+    And this is my roblox profile : https://www.roblox.com/users/1467688861/profile !!
     <br>
     my discord is also 9thharbinger yay, incase you want to add me!!
     <br>
@@ -42,3 +42,5 @@
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/f00c3025-1729-47ca-bef8-7fcf483e305c" />
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/2733e150-0124-4b66-9e2c-37de5887169f" />
 </p>
+
+and no im not making this fancy
