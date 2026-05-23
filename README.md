@@ -12,4 +12,6 @@
 <div align="center">
   <center><h1>Im really cool i promise</h1></center>
 </div>
-
+  <p align="center">
+  Scroll down for more info wow ok 
+</p>
