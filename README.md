@@ -1,3 +1,4 @@
+
 <div align="center">
   <center><h1>Welcome to my profile</h1></center>
 </div>
@@ -18,5 +19,6 @@
    </p>
 <br>
 <br>
-
-
+<p align="center">
+<img width="1240" height="1019" alt="PngItem_5273148" src="https://github.com/user-attachments/assets/8d9b043f-31cc-462f-9741-b393011936b1" />
+</p>
