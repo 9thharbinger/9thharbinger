@@ -18,6 +18,8 @@
     <br>
     Im quite awkward maybe, but im friendly, feel free to interact with me!!
     <br>
+    Please bmf
+    <br>
     <br>
     i play stuff such as erm roblox, pony town, lobcorp, limbus..i dont know
     <br>
@@ -29,6 +31,9 @@
  also sign my ata if youd like to : https://pantalone.atabook.org/ !!
     <br>
     And this is my roblox profile : https://www.roblox.com/users/1467688861/profile !!
+    <br>
+    my discord is also 9thharbinger yay, incase you want to add me!!
+    <br>
     </p>
 <br>
 <br>
