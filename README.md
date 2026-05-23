@@ -30,8 +30,4 @@
   <center><h1>About Pony town</h1></center>
 </div>
 <br>
-<p align="center">
-Cxh is ALWAYS appreciated, feel free to ALWAYS cxh!!!
-<br>
-Uhhh
-</p>
+ok this is still a wip 
