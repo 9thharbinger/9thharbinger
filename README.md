@@ -21,6 +21,7 @@
     <br>
     i play stuff such as erm roblox, pony town, lobcorp, limbus..i dont know
     <br>
+    i like owls, crows and cats, theyre very cute yay
     </p>
 <br>
 <br>
