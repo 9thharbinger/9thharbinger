@@ -15,12 +15,6 @@
   <p align="center">
   Scroll down for more info wow ok 
     <br>
-   first: Pony town stuff
-    <br>
-   second: fandom stuff
-    <br>
-   third: about me
-    <br>
-   Theyll all be highlighted with a divider and headline, so scroll to whichever you please!
    </p>
+
 
