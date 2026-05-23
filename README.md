@@ -32,6 +32,6 @@
 <br>
 ok this is still a wip 
 <p align="middle">
-<img width="240" height="248" alt="image" src="https://github.com/user-attachments/assets/e6e413cb-ffda-49fa-91fd-c3013398b3a6" />
+<img width="100" height="108" alt="image" src="https://github.com/user-attachments/assets/e6e413cb-ffda-49fa-91fd-c3013398b3a6" />
 </p>
 
