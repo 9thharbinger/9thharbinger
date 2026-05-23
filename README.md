@@ -18,7 +18,9 @@
     <br>
     Im quite awkward maybe, but im friendly, feel free to interact with me!!
     <br>
-    Lallaal
+    <br>
+    i play stuff such as erm roblox, pony town, lobcorp, limbus..i dont know
+    <br>
     </p>
 <br>
 <br>
