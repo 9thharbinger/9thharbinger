@@ -127,6 +127,22 @@ Each step sent a tremor through the whole facility. The monster was moving with 
 In the blink of an eye, it devoured the nameless employee in one bite, and right after that everyone started screaming in chaos. I had gone through handling countless suppressions, but that day, for the first time, I regretted ever joining the company. I was certain I wouldn’t get out of there alive. This helplessness overwhelmed me. I couldn’t even think about fighting back against the monster, and many others were feeling the same.
 
 I think I’m the only one who stayed sane enough to write this among all the survivors. The company will never tell our newbies about the existence of that monster. However, I wanted to leave them a warning at the very least. That’s why I’m writing this."
+<br>
+<br>
+<br>
+<div align="center">
+  <center><h1>The silent orchestras entry</h1></center>
+</div>
 
+"An abnormality that loves art and tries to get the entire company to listen to its music.
+Excerpt from an Encyclopedia;
+The conductor not only corrects musical errors, but is also responsible for creating the best ensemble and taking command of the music. A conductor's skill can be determined within 5 minutes at the podium. The moment the conductor opens the score, the performers read the conductor's eyes, actions, and aura to see if the person is worthy to lead them. Without the understanding and harmony between them, the macroscopic significance contained in the score cannot be expressed. Therefore, an outstanding degree of influence, leadership, and eloquence are essential qualities for a conductor to have...(Omitted)"
 
+"<1st Movement: Calm and Slow>
+The conductor begins to direct the apocalypse."
 
+"<Movements 2 through 4: Cheerful and Fast>
+Employees start to forget everything and show fervent adoration toward the symphony. The emotion soon turns into internal insanity, driving them to attack anyone near them. The orchestra gives impetus to the music, bringing the entire department to its demise. When all the performers have gathered, the music that no one can hear but everyone can listen to begins."
+
+"<Finale>
+"The music shall perforate your entire being."
