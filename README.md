@@ -135,14 +135,19 @@ I think I’m the only one who stayed sane enough to write this among all the su
 </div>
 
 "An abnormality that loves art and tries to get the entire company to listen to its music.
-Excerpt from an Encyclopedia;
+<br>
+Excerpt from an Encyclopedia
+<br>
 The conductor not only corrects musical errors, but is also responsible for creating the best ensemble and taking command of the music. A conductor's skill can be determined within 5 minutes at the podium. The moment the conductor opens the score, the performers read the conductor's eyes, actions, and aura to see if the person is worthy to lead them. Without the understanding and harmony between them, the macroscopic significance contained in the score cannot be expressed. Therefore, an outstanding degree of influence, leadership, and eloquence are essential qualities for a conductor to have...(Omitted)"
-
-"<1st Movement: Calm and Slow>
+<br>
+"1st Movement: Calm and Slow
+<br>
 The conductor begins to direct the apocalypse."
-
-"<Movements 2 through 4: Cheerful and Fast>
+<br>
+"Movements 2 through 4: Cheerful and Fast
+<br>
 Employees start to forget everything and show fervent adoration toward the symphony. The emotion soon turns into internal insanity, driving them to attack anyone near them. The orchestra gives impetus to the music, bringing the entire department to its demise. When all the performers have gathered, the music that no one can hear but everyone can listen to begins."
-
-"<Finale>
+<br>
+"Finale
+<br>
 "The music shall perforate your entire being."
