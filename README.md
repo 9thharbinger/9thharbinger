@@ -174,6 +174,11 @@ Employees start to forget everything and show fervent adoration toward the symph
 <br>
 "The music shall perforate your entire being."
 <br>
+<p align="center">
+https://youtu.be/LNSDYz0vZEY?si=vNKdRtJOpU2JjmIL
+</p>
+<br>
+<br>
 <div align="center">
   <center><h1>Dreaming electric sheep observation logs</h1></center>
 </div>
