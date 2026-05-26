@@ -151,3 +151,39 @@ Employees start to forget everything and show fervent adoration toward the symph
 "Finale
 <br>
 "The music shall perforate your entire being."
+<br>
+<div align="center">
+  <center><h1>Dreaming electric sheep observation logs</h1></center>
+</div>
+<br>
+Log 1
+<br>
+Um… I thought it was a big storm cloud at first.
+
+With the purple lightning through the wispy cloud and everything, and… Oh yeah, it was floating somewhere up high.
+
+But I wasn’t looking at a storm cloud. I was looking at a sheep with… with very, very long legs.
+
+I don’t know if it’s the storm clouds casting shadow over it, or if it was always dark, but its legs were so long and dark that they just blended in with the background.
+
+But I noticed something new with every strike of lightning, with every flash…
+
+It was almost like a dream. A four-legged cloud, illuminated in the flares of violet…
+
+Oh, and… there was something that stood out as odd from that dreamlike sight, though.
+
+There was a machine in there, with its cables and plugs strewn all over the place. … Maybe it was like a power generator, or something?
+
+Manager said something like “maybe the cables are the key to dealing with this Abnormality”…
+
+Do you think we have to plug those cables into the sheep? Ah, I see… What if that sheep is screaming so much because of the lightning in its body…?
+
+Well… I guess that's kinda like getting perpetually electrocuted. Of course it’ll hurt.
+<br>
+U-um, maybe we should plug this cable into the sheep…?
+<br>
+I can’t just sit back and do nothing forever, you know…
+<br>
+→ Huh, so that's what you were thinking when ya suddenly started sprinting towards that thing, kiddo? That was one weird battle cry, by the way. (Gregor)
+<br>
+→ Once Sinclair comes back, I'll let him know that there's no need to overexert himself. (Dante)
