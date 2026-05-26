@@ -128,6 +128,10 @@ In the blink of an eye, it devoured the nameless employee in one bite, and right
 
 I think I’m the only one who stayed sane enough to write this among all the survivors. The company will never tell our newbies about the existence of that monster. However, I wanted to leave them a warning at the very least. That’s why I’m writing this."
 <br>
+<p align="center">
+https://youtu.be/yMfR4fWP6Ig?si=O5bcr52UKrpEpquM
+</p>
+<br>
 <br>
 <div align="center">
   <center><h1>Judgement birds entry</h1></center>
