@@ -220,3 +220,31 @@ Now that it's no longer tortured by lightning, hopefully it’s cal (this part o
 → I really thought it would work… Maybe the lightning wasn’t its source of pain? (Sinclair)
 
 → Not enough lightning was drained from its body, perchance? Mayhaps we shall impale it with the other cables first, then observe?! (Don Quixote)
+<br>
+<p align="center">
+  Log 3
+</p>
+<br>
+Just as we finally got all the cables attached to the sheep, lightning struck, and purple sparks flew everywhere…
+
+… and the sheep just collapsed on the spot. It’s probably sleeping, right? I don’t think it’s d-dead…
+
+Oh, and… I-I know this sounds weird, but…
+
+Mm, yeah. I don’t think this sheep’s dead. I think this electric sheep is dreaming… L-look, it just twitched!
+
+Nothing says that Abnormalities dream of Abnormalities, right?
+
+Maybe it's enjoying a gentle dream, free from the painful strikes of lightning. Maybe it's suffering a dark nightmare because we’ve taken its spark…
+
+Well, there’s no way for us to know now, but… I wonder if lightning actually hurts this Abnormality. Or… maybe having its electricity taken away hurts more.
+
+→ Hm? Frau Faust didn’t leave a note here. Now that’s a surprise. (Gregor)
+
+→ Faust does not always consider these ruminations as unnecessary. In fact, she considers this an interesting subject. (Faust)
+
+→ So, can Abnormalities even dream? I’ve seen some entities among the Outskirts Monsters that'd fall catatonic like this sheep. (Ishmael)
+
+→ Hmph, isn’t the answer obvious? They’re merely emulations of human behavior, nothing more. (Outis)
+
+→ The ability to recollect may become the Abnormalities’ bridge from the waking world into the land of dreams. Yet, we know not whether what it reminisces is its past, or merely its figments. I lack sufficient evidence to speak with any more confidence. (Yi Sang)
