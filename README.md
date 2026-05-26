@@ -158,6 +158,8 @@ Employees start to forget everything and show fervent adoration toward the symph
 <br>
 Log 1
 <br>
+Log writer: sinclair
+<br>
 Um… I thought it was a big storm cloud at first.
 
 With the purple lightning through the wispy cloud and everything, and… Oh yeah, it was floating somewhere up high.
