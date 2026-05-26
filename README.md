@@ -57,9 +57,9 @@ mm
 <br>
 <br>
 <br>
-<p align="center">
-  Apocalypse Birds entry
-</p>
+<div align="center">
+  <center><h1>Apocalypse birds entry</h1></center>
+</div>
 "Known to come when the world is filled with sin, many employees fear the advent of this Abnormality.
 
 To talk about this bird, we first need to tell the story of the Black Forest. We must remember the forest that was once so peaceful and beautiful…
