@@ -275,7 +275,11 @@ Well, there’s no way for us to know now, but… I wonder if lightning actually
 → Hmph, isn’t the answer obvious? They’re merely emulations of human behavior, nothing more. (Outis)
 
 → The ability to recollect may become the Abnormalities’ bridge from the waking world into the land of dreams. Yet, we know not whether what it reminisces is its past, or merely its figments. I lack sufficient evidence to speak with any more confidence. (Yi Sang)
-
+<br>
+<p align="center">
+https://youtu.be/MbRjtZnRBPM?si=zu48S6d0uRNnqhE7
+</p>
+<br>
 
 <div align="center">
   <center><h1>Meursault corner</h1></center>
