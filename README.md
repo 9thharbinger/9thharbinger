@@ -251,6 +251,7 @@ Well, there’s no way for us to know now, but… I wonder if lightning actually
 
 
 <div align="center">
+  <center><h1>Meursault corner</h1></center>
 </div>
-<img width="600" height="849" alt="image" src="https://github.com/user-attachments/assets/27f7cbb5-70da-42ee-b484-b50852398146" />
+<img width="100" height="149" alt="image" src="https://github.com/user-attachments/assets/27f7cbb5-70da-42ee-b484-b50852398146" />
 
