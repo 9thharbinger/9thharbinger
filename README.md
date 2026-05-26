@@ -129,6 +129,20 @@ In the blink of an eye, it devoured the nameless employee in one bite, and right
 I think I’m the only one who stayed sane enough to write this among all the survivors. The company will never tell our newbies about the existence of that monster. However, I wanted to leave them a warning at the very least. That’s why I’m writing this."
 <br>
 <br>
+<div align="center">
+  <center><h1>Judgement birds entry</h1></center>
+</div>
+<br>
+"A bird that used to judge the living in the dark forest, carrying around an unbalanced scale."
+
+"The scale always tilts the same direction, but it doesn't know this as its eyes are covered. Or perhaps it's turning a blind eye to this truth."
+
+"In fact, the bird was once an even-handed justiciar. Its scale would never neglect the weight of even the smallest sin. The long bird made a scale that was capable of weighing any sin to maintain the peace of the forest."
+
+"At one point, the bird's eyes could see through anything. The eyes always shone brilliantly, burning like stars in the night sky. But it gave its eyes to the Big Bird in order to protect the forest. Now, only the void fills its eye sockets. The bandage is in tatters, like it could tear off at any second. The bird's face was once covered in gleaming feathers, but they fell out as it spent too much time without sunlight."
+
+"All that remains is the unjust scale. The long bird continues on, doling out judgement."
+<br>
 <br>
 <div align="center">
   <center><h1>The silent orchestras entry</h1></center>
