@@ -156,9 +156,11 @@ Employees start to forget everything and show fervent adoration toward the symph
   <center><h1>Dreaming electric sheep observation logs</h1></center>
 </div>
 <br>
+<p align="center">
 Log 1
 <br>
 Log writer: sinclair
+</p>
 <br>
 Um… I thought it was a big storm cloud at first.
 
@@ -189,3 +191,32 @@ I can’t just sit back and do nothing forever, you know…
 → Huh, so that's what you were thinking when ya suddenly started sprinting towards that thing, kiddo? That was one weird battle cry, by the way. (Gregor)
 <br>
 → Once Sinclair comes back, I'll let him know that there's no need to overexert himself. (Dante)
+<br>
+<br>
+<p align="center">
+  Log 2
+</p>
+<br>
+(There is some dark, ashen residue here. It’s been wiped away, but it left its mark.)
+
+Ah… sorry, I coughed up ash onto the paper. I-it won’t cause any problems, right? I wiped it just in case.
+
+Anyways, what happened was…
+
+… The sheep began attacking me as soon as I grabbed the cable from the generator.
+
+It would burst with lightning… or try to ram me with its body.
+
+Ah…! Hey, I think plugging the cable into the sheep helped! The sparks spewing from the sheep’s gotten slightly less intense.
+
+Now that it's no longer tortured by lightning, hopefully it’s cal (this part of the report has been burnt away, leaving the contents of this record a mystery…)
+
+→ Where is the rest of this record? He left this report unfinished. (Ishmael)
+
+→ T.P. A boring death, totally pulverized by the ramming sheep. (Ryōshū)
+
+→ It can be determined that his cause of death was his negligence to pay attention to the battle to the end. He should not have diverted his attention to writing this record in the middle of a fight. (Outis)
+
+→ I really thought it would work… Maybe the lightning wasn’t its source of pain? (Sinclair)
+
+→ Not enough lightning was drained from its body, perchance? Mayhaps we shall impale it with the other cables first, then observe?! (Don Quixote)
