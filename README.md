@@ -33,25 +33,24 @@
     my discord is also 9thharbinger yay, incase you want to add me!!
     <br>
     </p>
-<br>
+    <p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=3154xg6x5gwh2tjxnx6ix6qegaea&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3154xg6x5gwh2tjxnx6ix6qegaea&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=dark">
+  </a>
+</p>
 <br>
 <p align="middle">
 <img width="100" height="108" alt="image" src="https://github.com/user-attachments/assets/e6e413cb-ffda-49fa-91fd-c3013398b3a6" />
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/f00c3025-1729-47ca-bef8-7fcf483e305c" />
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/2733e150-0124-4b66-9e2c-37de5887169f" />
 </p>
-
 and no im not making this fancy
 <br>
 <p align="center">
 mm
 </p>
 
-<p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=3154xg6x5gwh2tjxnx6ix6qegaea&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3154xg6x5gwh2tjxnx6ix6qegaea&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=dark">
-  </a>
-</p>
+
 
 
 ![](https://komarev.com/ghpvc/?username=9thharbinger&label=👀&color=blueviolet&style=plastic)
