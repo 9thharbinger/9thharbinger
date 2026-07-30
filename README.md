@@ -23,9 +23,9 @@
   oomfs call me a vampire wow heh he
     <br>
     <br>
-    i like uh lobcorp, limbus, pantalone n dottore genshin, phighting, CoS, DA, blocktales and er.. more idk
+    I like a lot.. of things.. such as project moon.. roblox.. yeah..
     <br>
-    but my main interests are just the first three (lobc,limbus,pantalone and dottore)
+    But my current interests are BofB and well my ocs..
     <br>
     <br>
  also sign my ata if youd like to : https://pantalone.atabook.org/ !!
