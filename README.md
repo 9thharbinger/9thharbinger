@@ -23,7 +23,7 @@
   oomfs call me a vampire wow heh he
     <br>
     <br>
-    I like a lot.. of things.. such as project moon.. roblox.. yeah..
+    I like a lot.. of things.. such as project moon.. roblox.. yeah.. history too... history related films, medias too...
     <br>
     But my current interests are BofB and well my ocs..
     <br>
