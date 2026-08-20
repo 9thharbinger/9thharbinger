@@ -2,11 +2,11 @@
 
 
 <div align="center">
-  <center><h1>Welcome WIP </h1></center>
+  <center><h1> Greetings </h1></center>
 </div>
 <br/>
 <div align="center">
-  <b> This is very outdated. 
+  <b> This is very outdated as of now.
   </div>
 <p align="center">
  <img width="1000" height="575" alt="IMG_6118" src="https://github.com/user-attachments/assets/d9c2f099-b908-4474-bee3-698f53569b3d" /> 
@@ -16,23 +16,23 @@
   <center><h1>Im really cool i promise</h1></center>
 </div>
   <p align="center">
-  Feel free to Cxh at any time!
+  I love Cuddles and hiding/hugging, please, feel free to do so at any time! It is even encouraged to do so.
     <br>
-    Im quite awkward maybe, but im friendly, feel free to interact with me!!
+    I am very socially awkward, I apologize for that, if we do interact.
     <br>
-  oomfs call me a vampire wow heh he
-    <br>
-    <br>
-    I like a lot.. of things.. such as project moon.. roblox.. yeah.. history too... history related films, medias too...
-    <br>
-    But my current interests are BofB and well my ocs..
+  I usually am seen anywhere, really. Usually i sit with an oomf of mine, but, im usually near bakery or also sometimes in the project moon area.
     <br>
     <br>
- also sign my ata if youd like to : https://pantalone.atabook.org/ !!
+    My interests consist of multiple things. For one, I enjoy history as well as history related media such as BoB/BofB, aqotwf and so on. Besides all that, I also like Project moon which includes lcb, LoR and lc. As my user may or may not suggest, I used to be interested in genshin, though, I now am not that interested in it anymore.
     <br>
-    And this is my roblox profile : https://www.roblox.com/users/1467688861/profile !!
+    But at the moment, I seem to be fixating on my Ocs, which is pretty nice.
     <br>
-    my discord is also 9thharbinger yay, incase you want to add me!!
+    <br>
+ While youre at it, do also consider signing my Atabook; https://pantalone.atabook.org/ , thank you in advance.
+    <br>
+    And if someone for whatever reason, would like to see my Roblox profile, here you go; https://www.roblox.com/users/1467688861/profile
+    <br>
+    Other socials of mine include discord, where my user is 9thharbinger and Tiktok, where my user is 9thharbinger__ 
     <br>
     </p>
     <p align="center">
@@ -46,7 +46,7 @@
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/f00c3025-1729-47ca-bef8-7fcf483e305c" />
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/2733e150-0124-4b66-9e2c-37de5887169f" />
 </p>
-and no im not making this fanc
+and no im not making this fancy anytime soon.
 
 
 
