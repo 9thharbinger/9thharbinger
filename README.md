@@ -46,6 +46,9 @@
   I dont get social cues at all, please, if you want something from me, state it directly and please do not hint at it.
        <br>
        <br>
+  I can communicate in German and in English. As well as partially in french, though, i am not good in french at all.
+  <br>
+  <br>
                <div align="center">
   <center><h1> Interests </h1></center>
 </div> 
