@@ -64,6 +64,11 @@
     But at the moment, I seem to be fixating on my Ocs, which is pretty nice.
     <br>
     <br>
+  <div align="center">
+  <center><h1> Other </h1></center>
+</div> 
+  <br>
+       <br>
  While youre at it, do also consider signing my Atabook; https://pantalone.atabook.org/ , thank you in advance.
     <br>
        <br>
