@@ -6,8 +6,8 @@
 </div>
 <br/>
 <div align="center">
-  <b> l
-</div>
+  <b> This is very outdated. 
+  </div>
 <p align="center">
  <img width="1000" height="575" alt="IMG_6118" src="https://github.com/user-attachments/assets/d9c2f099-b908-4474-bee3-698f53569b3d" /> 
 </p>
