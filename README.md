@@ -55,7 +55,7 @@
 <p align="center">
                    <br>
                       <br>
-    My interests consist of multiple things. For one, I enjoy history as well as history related media such as BoB/BofB, aqotwf and so on.  I also enjoy playing Centaura and I like the centauran lore.
+    My interests consist of multiple things. For one, I enjoy history as well as history related media such as BoB/BofB, aqotwf and so on.  I also enjoy playing Centaura and I like the centauran lore. And to top it off, I also like Hetalia. (Water found in the ocean)
        <br>
           <br>
     Besides all that, I also like Project moon which includes lcb, LoR and lc. As my user may or may not suggest, I used to be interested in genshin, though, I now am not that interested in it anymore. 
