@@ -64,7 +64,7 @@
     But at the moment, I seem to be fixating on my Ocs, which is pretty nice.
     <br>
     <br>
-<img width="825" height="519" alt="image" src="https://github.com/user-attachments/assets/2a9eac2c-ff0c-4a27-8bad-defaca69ae50" />
+<img width="790" height="519" alt="image" src="https://github.com/user-attachments/assets/2a9eac2c-ff0c-4a27-8bad-defaca69ae50" />
     <br>
   These are my Ocs :)
         <br>
