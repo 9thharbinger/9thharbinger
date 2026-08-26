@@ -66,6 +66,7 @@
     <br>
 <img width="825" height="519" alt="image" src="https://github.com/user-attachments/assets/2a9eac2c-ff0c-4a27-8bad-defaca69ae50" />
     <br>
+  These are my Ocs :)
         <br>
             <br>
                 <br>
