@@ -1,6 +1,5 @@
 
 
-
 <div align="center">
   <center><h1> Greetings </h1></center>
 </div>
@@ -70,11 +69,12 @@
         <br>
             <br>
                 <br>
-  <div align="center">
+  <div align="middle">
   <center><h1> Other </h1></center>
 </div> 
   <br>
        <br>
+       <p align="center">
  While youre at it, do also consider signing my Atabook; https://pantalone.atabook.org/ , thank you in advance.
     <br>
        <br>
@@ -82,6 +82,7 @@
     <br>
        <br>
     Other socials of mine include discord, where my user is 9thharbinger and Tiktok, where my user is 9thharbinger__ 
+       </p>
     <br>
        <br>
     </p>
@@ -97,11 +98,18 @@
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/2733e150-0124-4b66-9e2c-37de5887169f" />
 </p>
 and no im not making this fancy anytime soon.
-
-
-
-
+<br>
+<br>
+<br>
+<br>
+<p align="middle">
+<img width="400" height="400" alt="IMG_6810" src="https://github.com/user-attachments/assets/e58f674f-2e69-495c-b615-5118bea9876a" />
+</p>
+<br>
+<br>
+  
 ![](https://komarev.com/ghpvc/?username=9thharbinger&label=👀&color=blueviolet&style=plastic)
+
 <br>
 <br>
 <br>
