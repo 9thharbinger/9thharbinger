@@ -60,7 +60,7 @@
     Besides all that, I also like Project moon which includes lcb, LoR and lc. As my user may or may not suggest, I used to be interested in genshin, though, I now am not that interested in it anymore, but i still like some characters.
     <br>
        <br>
-    But at the moment, I seem to be fixating on my Ocs, which is pretty nice.
+    But at the moment, I seem to be fixating on my Ocs and rdr2, which is pretty nice.
     <br>
     <br>
 <img width="790" height="519" alt="image" src="https://github.com/user-attachments/assets/2a9eac2c-ff0c-4a27-8bad-defaca69ae50" />
