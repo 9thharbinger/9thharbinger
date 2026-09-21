@@ -5,10 +5,10 @@
 </div>
 <br/>
 <div align="center">
-  <b> "Heffron. Watch the Goddamn line."
+  <b> WIP
   </div>
 <p align="center">
- <img width="1000" height="575" alt="IMG_6118" src="https://github.com/user-attachments/assets/d9c2f099-b908-4474-bee3-698f53569b3d" /> 
+WIP
 </p>
 
 <div align="center">
@@ -33,7 +33,7 @@
 <p align="center">
     <br>
       <br> 
-    Hello, Please refer to me as Pantalone, Eugene/Doc or Ludwig.
+    Hello, Please refer to me as Pantalone, Arthur or Ludwig.
        <br>
           <br>
           I go by They/them and he/him, please avoid using feminine pronouns, thank you.
