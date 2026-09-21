@@ -57,7 +57,7 @@ WIP
     My interests consist of multiple things. For one, I enjoy history as well as history related media such as BoB/BofB, aqotwf and so on.  I also enjoy playing Centaura and I like the centauran lore. And to top it off, I also like Hetalia. (Water found in the ocean)
        <br>
           <br>
-    Besides all that, I also like Project moon which includes lcb, LoR and lc. As my user may or may not suggest, I used to be interested in genshin, though, I now am not that interested in it anymore, but i still like some characters.
+    Besides all that, I also like Project moon which includes lcb, LoR and lc. As my user may or may not suggest, I used to be interested in genshin, though, I now am not that interested in it anymore, but i still like some characters. DO NOTE that my interests change rapidly
     <br>
        <br>
     But at the moment, I seem to be fixating on my Ocs and rdr2, which is pretty nice.
