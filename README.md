@@ -9,6 +9,17 @@ https://9thharbinger.straw.page
 </br>
 
 </br>
+# ABOUT PONY TOWN
+</br>
+</br>
+Cxh is ALWAYS welcomed, encouraged even.
+</br>
+please dont cover me unless youre a friend of mine. Thank you.
+</br>
+</br>
+i usually hang out near bakery or anywhere with oomfs of mine. (usually bakery or project moon area.)
+</br>
+</br>
 
 
 ![](https://komarev.com/ghpvc/?username=9thharbinger&color=lightgrey&style=plastic&label=Visitors)
